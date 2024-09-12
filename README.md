@@ -1,4 +1,4 @@
-## Hi there 👋
+## About ME 👋
 
 I'm Jorge, a tech enthusiast with a passion for problem-solving and innovation in the IT world.
 
